@@ -9,7 +9,7 @@
 
 - 📫 Reach me at **shreya.tripathy2003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ezGHMgL6wzb02mv-AyU5cnHYZmNQCDzi/view?usp=sharing](https://drive.google.com/file/d/1ezGHMgL6wzb02mv-AyU5cnHYZmNQCDzi/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1o7fCK_9udF6uTHFG36VDfu8wmTa0tj5B/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
